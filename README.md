@@ -1,6 +1,6 @@
 # **My Portfolio**  
 
-🌍 **Check out my blog**: [**My Blog**](https://khalid775.blogspot.com/)  
+🌍 **Check out my blog**: [**My Blog**](https://khalid8478.blogspot.com/)  
 
 ---
 
